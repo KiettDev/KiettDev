@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KiettDev
+- 👌 I'm a coder.... ?
+- 🤙 Generating cheat codes in the game is my job
+- 👉 I'm a coder from Vietnam
